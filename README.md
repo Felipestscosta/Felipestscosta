@@ -1,4 +1,4 @@
-### Fala colegas astronautas! Tudo sussa ? 🚀🚀🚀
+### Fala guys! Tudo sussa ? 🚀🚀🚀
 
 # Felipe Costa
 
